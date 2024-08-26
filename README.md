@@ -1,0 +1,1 @@
+A EASY PRATICE FROM AsmrProg
